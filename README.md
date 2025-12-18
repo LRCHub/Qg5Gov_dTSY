@@ -1,4 +1,4 @@
-# Kenshi Yonezu – LADY
+# 米津玄師 – LADY
 
 > **歌詞登録ステータス：プレーン歌詞のみ**
 
